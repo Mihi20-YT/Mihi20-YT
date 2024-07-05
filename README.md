@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mihi20-YT
 - 👀 I’m interested in Games and Youtube
-- 🌱 I’m currently learning shothing new
-- 💞️ I’m looking to collaborate on not eally
+- 🌱 I’m currently learning shomthing new
+- 💞️ I’m looking to collaborate on NAH
 - 📫 How to reach me you cant
 - 😄 Pronouns: He
 - ⚡ Fun fact: I am a youtuber
